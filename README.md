@@ -1,0 +1,2 @@
+# carlsen-ekkaOSN
+mencoba latihan
