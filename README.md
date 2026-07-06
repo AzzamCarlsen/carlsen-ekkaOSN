@@ -1,2 +1,2 @@
 # carlsen-ekkaOSN
-mencoba latihan
+Azzam sedang latihan, if u wanna help js text Azzam
